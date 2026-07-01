@@ -1,12 +1,12 @@
 <div align="center">
 
-![](https://files.catbox.moe/zizaax.png)
+
 
 </p>
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=♡&style=flat-square&color=7A224D&base=23264)
+![](https://komarev.com/ghpvc/?username=beaverhollow&label=♡&style=flat-square&color=000000&base=23264)
 
 </div>
 
