@@ -1,6 +1,6 @@
 <br>
 
-<img src="https://files.catbox.moe/4pqmda.png" width="270" align="left">
+<img src="https://files.catbox.moe/yjzrej.png" width="270" align="left">
 
  ${\textsf{\color{#888888}coven}}$ 　 ${\textsf{\color{#E1E1E1}he/none}}$ 　 ${\textsf{\color{#E1E1E1}18}}$ <br>
  ${\textsf{\color{#E1E1E1}6w7}}$ 　 ${\textsf{\color{#888888}infj}}$ 　 ${\textsf{\color{#888888}sys}}$　 ${\textsf{\color{#E1E1E1}scz}}$<br>
