@@ -1,20 +1,11 @@
-<div align="center">
+<br>
 
+<img src="https://files.catbox.moe/4pqmda.png" width="270" align="left">
 
+ ${\textsf{\color{#888888}coven}}$ 　 ${\textsf{\color{#E1E1E1}he/none}}$ 　 ${\textsf{\color{#E1E1E1}18}}$ <br>
+ ${\textsf{\color{#E1E1E1}6w7}}$ 　 ${\textsf{\color{#888888}infj}}$ 　 ${\textsf{\color{#888888}sys}}$　 ${\textsf{\color{#E1E1E1}scz}}$<br>
+ ${\textsf{\color{#E1E1E1}cnpd}}$ 　 ${\textsf{\color{#E1E1E1}perm ‍ ‍ ‍iwc}}$　 ${\textsf{\color{#888888}oti}}$ 　　 
 
-</p>
+![](https://komarev.com/ghpvc/?username=beaverhollow&color=E1E1E1&style=flat-square&label=⁰ᨵᩥ⁰)
 
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=beaverhollow&label=♡&style=flat-square&color=000000&base=23264)
-
-</div>
-
-<div align="center">
-  
-<sub>maybe [sign ata](https://calebtrapped.atabook.org/) i might reply idk perhaps? i kinda dont talk ever sorry. very selective with who i interact with<sub>
-
-<sub>please read our byi before trying to befriend us thank u..<sub>
-
-
-<div align="center">
+<br>
