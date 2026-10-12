@@ -14,7 +14,7 @@
   
 <sub>maybe [sign ata](https://calebtrapped.atabook.org/) i might reply idk perhaps? i kinda dont talk ever sorry. very selective with who i interact with<sub>
 
-<sub>please read our prns.cc before trying to befriend us thank u..<sub>
+<sub>please read our byi before trying to befriend us thank u..<sub>
 
 
 <div align="center">
