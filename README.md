@@ -11,7 +11,7 @@
 <details>
   <summary>me</summary>
 
-  dsmp fixation since 2020, mcyt fan 5ever!ㅤusually offtab w2iㅤmainly inactive
+  dsmp fixation since 2020, mcyt fan 5ever!ㅤusually offtab w2iㅤsemi-inactive
   
 </details>
 
