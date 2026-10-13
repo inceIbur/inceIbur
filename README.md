@@ -6,6 +6,13 @@
  ${\textsf{\color{#E1E1E1}6w7}}$ 　 ${\textsf{\color{#888888}infj}}$ 　 ${\textsf{\color{#888888}sys}}$　 ${\textsf{\color{#E1E1E1}scz}}$<br>
  ${\textsf{\color{#E1E1E1}cnpd}}$ 　 ${\textsf{\color{#E1E1E1}perm ‍ ‍ ‍iwc}}$　 ${\textsf{\color{#888888}oti}}$ 　　 
 
-![](https://komarev.com/ghpvc/?username=beaverhollow&color=E1E1E1&style=flat-square&label=⁰ᨵᩥ⁰)
+ ![](https://komarev.com/ghpvc/?username=beaverhollow&color=dbdbdb&style=flat-square&label=⁰ᨵᩥ⁰)
+
+<details>
+  <summary>me</summary>
+
+  dsmp fixation since 2020, mcyt fan 5ever!ㅤusually offtab w2iㅤmainly inactive
+  
+</details>
 
 <br>
