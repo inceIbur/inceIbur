@@ -11,7 +11,7 @@
 <details>
   <summary>me</summary>
 
-  dsmp fixation since 2020, mcyt fan 5ever!ㅤpls read straw before you int
+  [straw](https://softbur.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)
   
 </details>
 
