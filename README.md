@@ -11,7 +11,7 @@
 <details>
   <summary>me</summary>
 
-  [straw](https://softbur.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)
+  [straw](https://idiotbur.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)
   
 </details>
 
