@@ -9,7 +9,7 @@
 <details>
   <summary>ㅤ</summary>
 
- [fluffle](https://idiotbur.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://idiotbur.straw.page/)ㅤ[prns.cc]()
+ [fluffle]()ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
   
 </details>
 
