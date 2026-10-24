@@ -1,17 +1,15 @@
 <br>
 
-<img src="https://files.catbox.moe/yjzrej.png" width="270" align="left">
+<img src="https://file.garden/Z1rbruKl12fQ7u-4/wil" width="200" align="left">
 
  ${\textsf{\color{#888888}toms}}$ 　　 ${\textsf{\color{#E1E1E1}he/none}}$ 　 ${\textsf{\color{#E1E1E1}18}}$ <br>
  ${\textsf{\color{#E1E1E1}6w7}}$ 　 ${\textsf{\color{#888888}infj}}$ 　 ${\textsf{\color{#888888}sys}}$　 ${\textsf{\color{#E1E1E1}scz}}$<br>
- ${\textsf{\color{#E1E1E1}cnpd}}$ 　 ${\textsf{\color{#E1E1E1}perm ‍ ‍ ‍iwc}}$　 ${\textsf{\color{#888888}oti}}$ 　　 
-
- ![](https://komarev.com/ghpvc/?username=beaverhollow&color=dbdbdb&style=flat-square&label=⁰ᨵᩥ⁰)
+ ${\textsf{\color{#E1E1E1}cnpd}}$ 　 ${\textsf{\color{#E1E1E1}perm ‍ ‍ ‍iwec}}$　 ${\textsf{\color{#888888}oti}}$ 　　 
 
 <details>
-  <summary>me</summary>
+  <summary>ㅤ</summary>
 
-  [straw](https://idiotbur.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)
+ [fluffle](https://idiotbur.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://idiotbur.straw.page/)ㅤ[prns.cc]()
   
 </details>
 
