@@ -9,7 +9,7 @@
 <details>
   <summary>ㅤ</summary>
 
- [fluffle](https://fluffle.cc/wack)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
+ [fluffle](https://fluffle.cc/wack)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
   
 </details>
 
