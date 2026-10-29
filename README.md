@@ -11,7 +11,7 @@
 
  [fluffle](https://fluffle.cc/wack)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
 
- hi im tommy i like dsmp mcyt eddsworld and music )) im either with my bf or my friends. im usually always offtab #sorry
+ hi im tommy i like dsmp mcyt eddsworld and music )) im either with my bf or my friends. im usually offtab #myf
   
 </details>
 
