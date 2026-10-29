@@ -1,6 +1,6 @@
 <br>
 
-<img src="https://file.garden/Z1rbruKl12fQ7u-4/wil" width="200" align="left">
+<img src="https://file.garden/Z1rbruKl12fQ7u-4/johndave" width="200" align="left">
 
  ${\textsf{\color{#888888}toms}}$ 　　 ${\textsf{\color{#E1E1E1}he/none}}$ 　 ${\textsf{\color{#E1E1E1}18}}$ <br>
  ${\textsf{\color{#E1E1E1}6w7}}$ 　 ${\textsf{\color{#888888}infj}}$ 　 ${\textsf{\color{#888888}sys}}$　 ${\textsf{\color{#E1E1E1}scz}}$<br>
