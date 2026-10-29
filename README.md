@@ -11,7 +11,7 @@
 
  [fluffle](https://fluffle.cc/wack)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
 
- hi im tommy i like dsmp mcyt eddsworld and music. im mostly inactive but im oti if you see me online )) i dont have a specific spot im either with my bf or my friends
+ hi im tommy i like dsmp mcyt eddsworld and music )) i dont have a specific spot im either with my bf or my friends
   
 </details>
 
