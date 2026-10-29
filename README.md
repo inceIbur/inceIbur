@@ -10,6 +10,8 @@
   <summary>ㅤ</summary>
 
  [fluffle](https://fluffle.cc/wack)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
+
+ hi im tommy i like dsmp eddsworld and music. im kind of inactive but im oti if you see me online! 
   
 </details>
 
